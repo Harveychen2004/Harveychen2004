@@ -7,7 +7,7 @@
 - 🤔 I’m looking for help with getting used to Git workflow ...
 - 💬 Ask me about Anything, except my Name ... (Wish you never forget after seeing my post
 - 📫 How to reach me: follow me at c.harvey.x on instagram ...
-- ⚡ Fun fact: 不会弹吉他的合唱团男低不是飞盘社爱看曼昆的计算机学生
+- ⚡ Fun fact: 不会弹吉他的合唱团男低不是玩飞盘爱看曼昆的计算机学生
 
 
 <!--
